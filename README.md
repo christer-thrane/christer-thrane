@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning how to upload data sets to accompany my blog posts on medium.com and my research 
 - 💞️ I’m looking to collaborate on everything and nothing ... :-)
 - 📫 How to reach me: christer.thrane@inn.no, https://medium.com/@christerthrane, or https://www.researchgate.net/
+- My web page: https://www.inn.no/english/find-an-employee/christer-thrane.html
 - 😄 Pronouns: He
 - ⚡ Fun fact: I enjoy rowing on dry land ...
 
